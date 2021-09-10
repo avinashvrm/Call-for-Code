@@ -21,5 +21,3 @@ https://docs.google.com/presentation/d/169fMv13cMl23FtGHYccbRHXZZGYiIY-_EkhNC4Cj
 
 DOCUMENTATION LINK :https://drive.google.com/file/d/1xttRGTMndlkdaP0FDnhFLeBXUz89-H7F/view?usp=sharing
 
-LINK To VIDEO PRESENTATION:https://drive.google.com/file/d/1IXOD2wwphado6hwv2kAQwFkjsekDN1zw/view?usp=sharing
-
